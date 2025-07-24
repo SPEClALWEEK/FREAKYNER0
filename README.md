@@ -1,2 +1,2 @@
-me and my oomfs
-![Image](https://github.com/user-attachments/assets/e0b66ab7-a566-4c3c-8322-47e40670f376)
+nero with his wifey ,,0_0,,
+<img width="2881" height="2339" alt="Image" src="https://github.com/user-attachments/assets/b080c3e4-f542-4b60-a397-5b5265a9f29b" />
